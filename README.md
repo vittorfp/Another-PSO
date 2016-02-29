@@ -1,1 +1,1 @@
-# Stop-the-bullshit-it-s-just-another-PSO
+# Stop the bullshit it's just another PSO
